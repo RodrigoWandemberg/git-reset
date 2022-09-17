@@ -1,3 +1,2 @@
-Curso Reset
-
-Reositorio para ensinar git
+jinnnvnvvnmvm
+gkgggkggj
